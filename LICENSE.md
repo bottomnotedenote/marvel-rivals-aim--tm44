@@ -1,4 +1,4 @@
-
+Instantâneo Marvel Rivals traps WH é o melhor Marvel Rivals traps WH com munição ilimitada e sem recuo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
